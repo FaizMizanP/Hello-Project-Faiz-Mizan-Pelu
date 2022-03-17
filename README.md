@@ -1,2 +1,2 @@
-# Faiz Mizan Pelu-
+# Faiz Mizan Pelu
 bahan tugas tugas 
